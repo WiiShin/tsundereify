@@ -1,2 +1,0 @@
-# tsundereify
-tsundereify for revenge
